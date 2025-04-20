@@ -1,5 +1,5 @@
 # 💫 About Me:
-i'm a fullstack engineer <br>i'm looking for a team<br>incubator 25' inshaAllah
+i'm a Web Developer <br>Y Entrepreneurs<br>Stanford 26'
 
 
 ## 🌐 Socials:
