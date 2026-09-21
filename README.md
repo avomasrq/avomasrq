@@ -1,5 +1,5 @@
 # 💫 About Me:
-My names is Arystan Tanekov <br> i'm building Argos<br> currently attending ERAU 30'
+My names is Arystan Tanekov <br> i'm building Argos<br> currently attending ERAU class of 2030 (Computer Science)
 
 
 ## 🌐 Socials:
