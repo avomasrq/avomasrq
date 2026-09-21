@@ -1,5 +1,5 @@
 # 💫 About Me:
-i'm a Web Developer <br>Y Entrepreneurs<br>Stanford 26'
+My names is Arystan Tanekov <br> i'm building Argos<br> currently attending ERAU 30'
 
 
 ## 🌐 Socials:
